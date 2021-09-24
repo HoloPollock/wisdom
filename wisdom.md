@@ -11,3 +11,4 @@
 - Most team culture comes out of a combination of what is tolerated and what is rewarded. If you legit want your culture to improve, change what you reward and rethink what you will tolerate.  
 - Stop caring if people are mad at you, but care if people are disappointed 
 - Always set a timer. 
+- You can grow and not tell people your did
